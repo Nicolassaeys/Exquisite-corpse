@@ -11,3 +11,10 @@ Pleins d'histoire font le tour mais l'aquelle doit on *croire*
 
 
 > Mais quelles filouteries cet immonde personnage s'apprête-t-il encore à nous faire subir ?
+
+
+Moulagax n'étant pas très inspiré par sa propre histoire, il mit fin à ses jours. *sadface*
+
+Arrivé en enfer, le voilà entouré de personnages bien plus effrayant que lui!
+
+Et pour la première fois, Moulagax a peur....
