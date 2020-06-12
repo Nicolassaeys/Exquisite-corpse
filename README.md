@@ -11,3 +11,7 @@ Pleins d'histoire font le tour mais l'aquelle doit on *croire*
 
 
 > Mais quelles filouteries cet immonde personnage s'apprête-t-il encore à nous faire subir ?
+
+Ce qu'ignorent les villages alentours c'est que le sinistre Comte **Moulagax** aime ce rôle de mechéant. mais c'est un **GRAND** timide, oui j'ai bien dis timide. il ne sort que la nuit, rien avoir avec le soleil juste moins de monde.
+Ce rôle de méchant lui offre la paix, son manoir d'apparence [Lugubre](https://lemarcal.files.wordpress.com/2013/10/252.jpg), et un réalité un petit [nid](https://www.vv-artdesign.com/wp-content/uploads/2015/11/Salon-cosy-ambiance-chalet.jpg) cosi.
+Mais pour garder son rôle, Comte **Moulagax** de son surnom intime *toumou*, se doit de faire des *filouteries*. Vous vous en doutez dèjà quand personne n'est là. En voici l'une d'entre elles :
