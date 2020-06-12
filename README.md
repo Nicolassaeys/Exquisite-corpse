@@ -21,7 +21,7 @@ Arrivé en enfer, le voilà entouré de personnages bien plus effrayant que lui!
 Et pour la première fois, Moulagax a peur....
 =======
 Ce qu'ignorent les villages alentours c'est que le sinistre Comte **Moulagax** aime ce rôle de mechant. Mais c'est un **GRAND** timide, oui j'ai bien dit timide. Il ne sort que la nuit, rien à voir avec le soleil, juste moins de monde.
-Ce rôle de méchant lui offre la paix, son manoir d'apparence ![Lugubre](https://lemarcal.files.wordpress.com/2013/10/252.jpg), est un réalité un petit cosy. ![nid](https://www.vv-artdesign.com/wp-content/uploads/2015/11/Salon-cosy-ambiance-chalet.jpg "Chalet lugubre")
+Ce rôle de méchant lui offre la paix, son manoir d'apparence lugubre ![Lugubre](https://lemarcal.files.wordpress.com/2013/10/252.jpg), est un réalité un petit nid cosy. ![nid](https://www.vv-artdesign.com/wp-content/uploads/2015/11/Salon-cosy-ambiance-chalet.jpg "Chalet lugubre")
 Mais pour garder son rôle, Comte **Moulagax** de son surnom intime *toumou*, se doit de faire des *filouteries*. Vous vous en doutez dèjà quand personne n'est là. En voici l'une d'entre elles :
 
 ![Moulagax](https://animaals.com/wp-content/uploads/2015/06/betise-chien-4.jpg)
